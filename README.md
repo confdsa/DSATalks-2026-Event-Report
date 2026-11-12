@@ -14,7 +14,6 @@ Post-event report of **DSATalks 2026**, held on **4–5 November 2026** at the A
 | Venue | ATÜ Library Conference Hall, Sarıçam, Adana |
 | Programme | 2 days · 3 invited speakers · 4 sessions |
 | Feedback | 584 session responses · weighted satisfaction 4.72 / 5 |
-| Language | Turkish |
 
 ## What's inside
 
